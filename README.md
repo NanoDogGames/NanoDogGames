@@ -1,1 +1,1 @@
-Hello there, I am TinyDogDev. I am a dreamer, I create worlds. :)
+Hello there, I am NanoDog. I am a dreamer, I create worlds. :)
